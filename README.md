@@ -6,7 +6,8 @@ Honestly, I don't even know why I advertise this site. Its not like people are i
 
 ### Down to business
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+![9a2845f8-b512-4392-99df-9b7e82eb8bf7-1](https://user-images.githubusercontent.com/63864204/79586264-e0078a00-809e-11ea-8c0a-ece506fc46f9.jpeg)
+
 
 
 

@@ -3,7 +3,7 @@
 Yeah, this is were i post my "anime" so if my computer gets seized then my mommy wont see the photos.
 
 Honestly, I don't even know why I advertise this site. Its not like people are into the same stuff as me. Hell, I once beat it to a photo of Danny Devito.
-
+Ok, well have fun weeb. Hand selected "anime" that I'm interested in and personally like. If you dont, thats fine.
 ### Down to business, gamers.
 
 ![9a2845f8-b512-4392-99df-9b7e82eb8bf7-1](https://user-images.githubusercontent.com/63864204/79586264-e0078a00-809e-11ea-8c0a-ece506fc46f9.jpeg)
@@ -19,7 +19,7 @@ Honestly, I don't even know why I advertise this site. Its not like people are i
 
 
 For more details, give me your email so I can sell it.
-email me @ shitposting129@gmail.com
+Email me @ shitposting129@gmail.com
 
 
 ### DISCLAIMER

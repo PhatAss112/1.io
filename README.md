@@ -1,30 +1,14 @@
-## Welcome to GitHub Pages
+## Welcome to my "anime" stash!
 
-You can use the [editor on GitHub](https://github.com/PhatAss112/1.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+Yeah, this is were i post my "anime" so if my computer gets seized then my mommy wont see the photos.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Honestly, I don't even know why I advertise this site. Its not like people are into the same stuff as me. Hell, I once beat it to a photo of Danny Devito.
 
-### Markdown
+### Down to business
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
-```markdown
-Syntax highlighted code block
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 

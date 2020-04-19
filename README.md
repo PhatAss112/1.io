@@ -1,4 +1,4 @@
-## NSFW WARNING!
+<h1 style="font-size:45px; color:#b30000; background:#ffffff"> NSFW WARNING! </h1>
 ## Welcome to my "anime" stash!
 
 Yeah, this is were i post my "anime" so if my computer gets seized then my mommy wont see the photos.

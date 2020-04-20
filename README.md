@@ -7,7 +7,7 @@ Hello guys. The actual NSFW stuff is not on this here website, you have to click
 Ok, well have fun weeb. Hand selected "anime" that I'm interested in and personally like. If you dont, thats fine.
 ### Down to business, gamers.
 
-         https://phatass112.github.io/3.io/#
+https://phatass112.github.io/3.io/#
 
 ----------------------------------------------------
 

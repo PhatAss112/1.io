@@ -1,17 +1,17 @@
-## NSFW WARNING! (ON BUTTON CLICKED DOWN BELOW!)
+## NSFW WARNING! (ON LINK CLICKED DOWN BELOW!)
 
 
 Yeah, this is were i post my "anime" so if my computer gets seized then my mommy wont see the photos.
 
-Hello guys. The actual NSFW stuff is not on this here website, you have to click the button below. If you don't click the button, you'll just be on this screen. Stay on this screen as long as you want, nothing will happen. If any parents are around when you're about to click the button, get away from them.
+Hello guys. The actual NSFW stuff is not on this here website, you have to click the link below. If you don't click the link, you'll just be on this screen. Stay on this screen as long as you want, nothing will happen. If any parents are around when you're about to click the link, get away from them.
 Ok, well have fun weeb. Hand selected "anime" that I'm interested in and personally like. If you dont, thats fine.
 ### Down to business, gamers.
 
-<a> class="github-button" href="https://phatass112.github.io/3.io/#" data-color-scheme="no-preference: dark; dark: dark; dark: dark;" data-icon="octicon-issue-opened" data-size="large" aria-label="Issue ntkme/github-buttons on GitHub">Show the photos (NSFW!)</a>
+         https://phatass112.github.io/3.io/#
 
 ----------------------------------------------------
 
-Yeah, you need to click the button to see the nudes.
+Yeah, you need to click the link to see the nudes.
 
 ----------------------------------------------------
 

@@ -1,5 +1,6 @@
 ## NSFW WARNING!
-# <script async defer src="https://buttons.github.io/buttons.js"></script>
+
+
 Yeah, this is were i post my "anime" so if my computer gets seized then my mommy wont see the photos.
 
 Honestly, I don't even know why I advertise this site. Its not like people are into the same stuff as me. Hell, I once beat it to a photo of Danny Devito.
@@ -20,3 +21,5 @@ Email me @ shitposting129@gmail.com
 
 ### DISCLAIMER
 why tf are you reading this? Who the fuck reads disclaimers. Its 11:39am and I havent slept in over 24 hours. Turn your shit off and sleep you fucking thing.
+
+<script async defer src="https://buttons.github.io/buttons.js"></script>

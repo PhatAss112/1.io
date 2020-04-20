@@ -1,6 +1,5 @@
-<script async defer src="https://buttons.github.io/buttons.js"></script>
 ## NSFW WARNING!
-
+# <script async defer src="https://buttons.github.io/buttons.js"></script>
 Yeah, this is were i post my "anime" so if my computer gets seized then my mommy wont see the photos.
 
 Honestly, I don't even know why I advertise this site. Its not like people are into the same stuff as me. Hell, I once beat it to a photo of Danny Devito.

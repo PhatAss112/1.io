@@ -7,7 +7,7 @@ Honestly, I don't even know why I advertise this site. Its not like people are i
 Ok, well have fun weeb. Hand selected "anime" that I'm interested in and personally like. If you dont, thats fine.
 ### Down to business, gamers.
 
-<a class="github-button" href="https://youtube.com/" data-color-scheme="no-preference: dark; light: light; dark: dark;" data-icon="octicon-issue-opened" data-size="large" aria-label="Issue ntkme/github-buttons on GitHub">Show the photos (NSFW!)</a>
+<a class="github-button" href="https://phatass112.github.io/2.io/" data-color-scheme="no-preference: dark; dark: dark; dark: dark;" data-icon="octicon-issue-opened" data-size="large" aria-label="Issue ntkme/github-buttons on GitHub">Show the photos (NSFW!)</a>
 
 ----------------------------------------------------
 

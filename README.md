@@ -1,4 +1,4 @@
-## NSFW WARNING!
+## NSFW WARNING! (ON BUTTON CLICKED DOWN BELOW!)
 
 
 Yeah, this is were i post my "anime" so if my computer gets seized then my mommy wont see the photos.

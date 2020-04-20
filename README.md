@@ -11,11 +11,11 @@ https://phatass112.github.io/3.io/#
 
 ----------------------------------------------------
 
-Yeah, you need to click the link to see the nudes.
+Yeah, you need to click the link to see the pics.
 
 ----------------------------------------------------
 
-For more details, give me your email so I can sell it.
+For more details, reccomendations or requests to post ads,
 Email me @ shitposting129@gmail.com
 
 

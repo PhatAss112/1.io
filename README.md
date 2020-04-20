@@ -3,7 +3,7 @@
 
 Yeah, this is were i post my "anime" so if my computer gets seized then my mommy wont see the photos.
 
-Honestly, I don't even know why I advertise this site. Its not like people are into the same stuff as me. Hell, I once beat it to a photo of Danny Devito.
+Hello guys. The actual NSFW stuff is not on this here website, you have to click the button below. If you don't click the button, you'll just be on this screen. Stay on this screen as long as you want, nothing will happen. If any parents are around when you're about to click the button, get away from them.
 Ok, well have fun weeb. Hand selected "anime" that I'm interested in and personally like. If you dont, thats fine.
 ### Down to business, gamers.
 
